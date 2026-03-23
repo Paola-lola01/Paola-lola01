@@ -1,4 +1,4 @@
-## Bem vindo eu meu perfil,✨ _eu sou a Paola _✨🇧🇷
+## Bem vindo ao meu perfil,✨ _eu sou a Paola _✨🇧🇷
 
 Estou estudando no Alura
 
